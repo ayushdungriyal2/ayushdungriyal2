@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Ayush Dungriyal
+Hi ![](https://cdn.discordapp.com/attachments/1030898960459636786/1035069633281146910/hi_1_1.gif)My name is Ayush Dungriyal
 =======================================================================================================================================
 
 *   🌍  I'm based in Bengaluru
